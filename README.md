@@ -2,11 +2,6 @@
 ### 
 byi ✫ afk almost all of the time so whisper if you want be sure i see your message ! i'm not very good at talking so i'm sorry if i take a long time to respond / don't respond at all but don't let that stop you from inting :3 
 
-dni ✭ basic dni criteria , pro / comshippers
-
-my interests ✯ dungeon meshi is my current fixation , drawing , overwatch , splatoon , project sekai , genshin , pokemon , vocaloid , persona , hollow knight , rain world , risk of rain , all saints street , terraria , ultrakill , lethal company
-
-my favourite charactersss ★ dungeon meshi: LAIOS OH MY Gosh my pretty princess laios , kabru , falin , marcille | overwatch: hanzo , cassidy , baptiste , lucio , genji | prsk: all of nightcord , honami , haruka | genshin: kokomi , furina , itto , wriothesley , navia , nilou , yelan | persona: ryujiiiiiii , futaba , makoto , haru , ann | pokemon: all of the s&v main cast 
 
 <!--
 **starstruckGastropod/starstruckGastropod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
