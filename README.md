@@ -1,4 +1,4 @@
-### hyphen | he / him | 20
+### hyphen | he / him | 21
 ### 
 byi ✫ afk almost all of the time so whisper if you want be sure i see your message ! i'm not very good at talking so i'm sorry if i take a long time to respond / don't respond at all but don't let that stop you from inting :3 
 
